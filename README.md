@@ -6,4 +6,5 @@ silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
-* Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+* Angga Ganteng, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
+
